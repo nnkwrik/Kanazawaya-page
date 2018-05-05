@@ -1,0 +1,1 @@
+# Kanazawaya-page
